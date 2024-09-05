@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kethelinnicolly
+- 👀 i´m 15 years old 
+- 🌱 my hobby favorite is read, i love romance books 
+- 💞️ i studed in AGV, in first year of middle endino
+- 📫 i am cristian, i love take photos with cameron
+- 😄 i live in PARANAGUÁ since 15 years old
